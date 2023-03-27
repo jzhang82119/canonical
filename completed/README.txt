@@ -1,1 +1,1 @@
-Copy your new script here
+Thanks for your time to review the completed task.
